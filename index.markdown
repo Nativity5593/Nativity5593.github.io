@@ -306,6 +306,8 @@ Children are always welcome at our worship service.
 
 ## Previous Newsletters
 
+* [June](https://preview.mailerlite.io/preview/623765/emails/119894939156875041)
+* [May](https://preview.mailerlite.io/preview/623765/emails/116723227115390720)
 * [April](https://preview.mailerlite.io/preview/623765/emails/114193297578132966)
 * [March](https://preview.mailerlite.io/preview/623765/emails/111662424036214391)
 * [February](https://preview.mailerlite.io/preview/623765/emails/109680534196586271)

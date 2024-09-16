@@ -32,7 +32,7 @@ Children are always welcome at our worship service.
 * Sunday School, during 10 AM  service, in the Sacristy, during the school year
 * ​10 AM worship in the Sanctuary 
 * 11 AM Fellowship in the Fellowship Hall of the Lutheran Center
-* Please contact 775-575-5400 if you are home bound or a "shut in", or know someone who is, and would like to partake of Holy Communion.
+* Please contact 775-524-4438 if you are home bound or a "shut in", or know someone who is, and would like to partake of Holy Communion.
 
 ## Bible Verse of the Day
 
@@ -334,10 +334,9 @@ From Highway 95A, turn West on Cedar, drive two blocks to West Street, and you w
 
 * Location:  290 S. West St., Fernley, NV
 * Mailing Address: PO Box 1041, Fernley, NV 89408
-* Phone:  775-575-5400
+* Phone:  775-524-4438
 * Website:  www.gift-of-grace.org
 * e-mail: office@gift-of-grace.org
-
 ​
 ## LUTHERAN CENTER
 

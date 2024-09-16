@@ -337,6 +337,7 @@ From Highway 95A, turn West on Cedar, drive two blocks to West Street, and you w
 * Phone:  775-524-4438
 * Website:  www.gift-of-grace.org
 * e-mail: office@gift-of-grace.org
+
 ​
 ## LUTHERAN CENTER
 

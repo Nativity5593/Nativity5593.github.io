@@ -67,14 +67,6 @@ Children are always welcome at our worship service.
 * [July](https://preview.mailerlite.io/preview/623765/emails/156046733707576702)
 * [June](https://preview.mailerlite.io/preview/623765/emails/152895127914808353)
 * [May](https://preview.mailerlite.io/preview/623765/emails/150510462176331695)
-* [April](https://preview.mailerlite.io/preview/623765/emails/147798026166993987)
-* [March](https://preview.mailerlite.io/preview/623765/emails/145263631271986892)
-* [February](https://preview.mailerlite.io/preview/623765/emails/142115620261988283)
-* [January](https://preview.mailerlite.io/preview/623765/emails/139850995268060922)
-* [December](https://preview.mailerlite.io/preview/623765/emails/136943241530443033)
-* [November](https://preview.mailerlite.io/preview/623765/emails/133870643795986020)
-* [October](https://preview.mailerlite.io/preview/623765/emails/130678465020036782)
-* [September](https://preview.mailerlite.io/preview/623765/emails/128675063206511679)
 
 ## Recorded Sermons on Facebook
 

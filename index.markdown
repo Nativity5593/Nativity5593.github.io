@@ -61,6 +61,8 @@ Children are always welcome at our worship service.
 
 ## Previous Newsletters
 
+* [April](https://preview.mailerlite.io/preview/623765/emails/180787784860042945)
+* [March](https://preview.mailerlite.io/preview/623765/emails/177637622185723325)
 * [February](https://preview.mailerlite.io/preview/623765/emails/175100409423070711)
 * [January](https://preview.mailerlite.io/preview/623765/emails/172836056862819748)
 * [December](https://preview.mailerlite.io/preview/623765/emails/169365261791528331)
@@ -95,8 +97,10 @@ From Highway 95A, turn West on Cedar, drive two blocks to West Street, and you w
 ​
 ## LUTHERAN CENTER
 
-190 S. West. St., Fernley, NV
+* 190 S. West. St., Fernley, NV
+* (Office, Fellowship Hall, Sunday School Classrooms)
+* Across the parking lot from the church building-Sanctuary
 
-(Office, Fellowship Hall, Sunday School Classrooms)
+## We are moving later this year.  Date to be confirmed
 
-Across the parking lot from the church building-Sanctuary
+Our new location will be just down the road, at St Michael's & All Angels in Wadsworth

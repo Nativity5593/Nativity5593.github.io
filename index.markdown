@@ -78,29 +78,23 @@ Children are always welcome at our worship service.
 
 [Click here for recorded Sermons](https://www.facebook.com/watch/giftofgracefernley/)
 
+# New Location
+
 ## Directions
+* From The Wigwam, head toward Exit 46, driving past Love’s and Pilot toward Wadsworth
+* Stay on the main road, into Wadsworth
+* As you enter town, cross the Truckee River, with a railroad bridge on your right
+* Immediately after the bridge, turn right onto Virginia Street
+* As the road forks, follow the road to the left
+* Continue on this road through the neighborhood
+* Near the end, you’ll see a playground on your right
+* After the playground, the road makes a sharp right.  Go slightly left into the Church parking lot instead of following the turn 
 
-From Main Street, turn South on West St. (by the Wigwam), drive two blocks to Cedar, and the Church is on the right
-
-From Highway 95A, turn West on Cedar, drive two blocks to West Street, and you will see the Church on the right
-
-<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d1292.4275151147262!2d-119.25454969810093!3d39.6063045100499!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8098dd5f71a2eceb%3A0xb3668edf7d9fc94a!2sGift+of+Grace+Lutheran!5e0!3m2!1sen!2sus!4v1519624704069" width="1000" height="450" frameborder="0" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d768.1150116456133!2d-119.28626907140732!3d39.63935989821606!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8098dc539f49cc6b%3A0xc41cf27edba7ff54!2sSt%20Michael%20%26%20All%20Angels!5e0!3m2!1sen!2sus!4v1779576019374!5m2!1sen!2sus" width="1000" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 
 ## Gift of Grace Lutheran Church
-
-* Location:  290 S. West St., Fernley, NV
+* Location: 444 Reservation Rd, Wadsworth, NV 89442
 * Mailing Address: PO Box 1041, Fernley, NV 89408
 * Phone:  775-524-4438
 * Website:  www.gift-of-grace.org
 * e-mail: office@gift-of-grace.org
-
-​
-## LUTHERAN CENTER
-
-* 190 S. West. St., Fernley, NV
-* (Office, Fellowship Hall, Sunday School Classrooms)
-* Across the parking lot from the church building-Sanctuary
-
-## We are moving later this year.  Date to be confirmed
-
-Our new location will be just down the road, at St Michael's & All Angels in Wadsworth

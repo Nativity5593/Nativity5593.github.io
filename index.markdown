@@ -30,8 +30,8 @@ God's Blessings to you.
 
 Children are always welcome at our worship service.
 * Sunday School, during 10 AM  service, in the Sacristy, during the school year
-* ​10 AM worship in the Sanctuary 
-* 11 AM Fellowship in the Fellowship Hall of the Lutheran Center
+* 🕥 ​10:30 AM worship in the Sanctuary 
+* 🕦 11:30 AM Fellowship in the Fellowship Hall
 * Please contact 775-524-4438 if you are home bound or a "shut in", or know someone who is, and would like to partake of Holy Communion.
 
 ## Bible Verse of the Day
